@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm 15 years old, and I'm into programming, gaming, and sports. <br><br>Here is what I like to do in my free time:<br>- 🏀 Playing basketball and staying active.<br>- 🎧 Listening to music all day long.<br>- 🕹️ Playing Geometry Dash, Minecraft, and Terraria.<br>
+I'm 15 years old, and I'm into programming, gaming, and sports. <br><br>Here is what I like to do in my free time:<br>- 🏀 Playing basketball and staying active.<br>- 🎧 Listening to music.<br>- 🕹️ Playing Geometry Dash, Minecraft, and Terraria.<br>
 
 
 ## 🌐 Socials:
